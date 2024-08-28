@@ -1,4 +1,4 @@
-<h1 align="center">Hi 👋, I'm Soumya Dhakad</h1>
+<h1 align="center">Hi 👋, I'm Soumya!</h1>
 <h3 align="center">A passionate developer and competitive programmer!</h3>
 
 - 💬 Ask me about **CP and DSA**
