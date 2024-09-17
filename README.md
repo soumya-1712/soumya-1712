@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **soumyadhakad123@gmail.com**
 
-- 📄 Know about my experiences [drive.google.com/file/d/1FERgLraLgcmlAY4RLtq7Zz-NWSh_69YC/](drive.google.com/file/d/1FERgLraLgcmlAY4RLtq7Zz-NWSh_69YC/)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1cy3VQBb84D_V9gkGszqXk5p3v24RA5Di/view](https://drive.google.com/file/d/1cy3VQBb84D_V9gkGszqXk5p3v24RA5Di/view)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
